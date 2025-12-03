@@ -1,8 +1,8 @@
 # DawnBreaker
 A funny ASYM game, but with no PEDOPHILES LIKE FORSAKEN!! Fuck you Hytoko, Fuck you Souldrivenlove, Fuck you Basil, Fuck you CEOofIsaac, Fuck all of you tied to your fuckass pedophile game. Die in a fire!!!
 
-Thanks for finding this and reading the README. 
-Here's the real description. (still meant what I said at the beginning, seriously, Fuck ANYONE who's touched, or worked, or even interacted with those fucking scumbags. Basil doesn't do shit, and Hytoko is a fucking pussy. You all love giving money to a pedophile and don't deserve any sympathy, that or any love. But hey! You have souldrivenlove! Fuck you)
+Thanks for finding this and reading this.
+(still meant what I said at the beginning, seriously, Fuck ANYONE who's touched, or worked, or even interacted with those fucking scumbags. Basil doesn't do shit, and Hytoko is a fucking pussy. You all love giving money to a pedophile and don't deserve any sympathy, that or any love. But hey! You have souldrivenlove! Fuck you)
 
 DawnBreaker is another ASYM gane being lovingly crafted by someone who ISN'T A PEDOPHILE LIKE HYTOKO OR SOUL!!
 
